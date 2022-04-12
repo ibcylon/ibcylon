@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-[Résumé 👈](https://onyx-beryl-72a.notion.site/R-sum-21-02-18-0505b8efd74d47ef9d19c767c2e3aaff)
+[Résumé 👈](https://onyx-beryl-72a.notion.site/R-sum-4-12-a70c078f65774d73970544f4d9a65138)
 
 업데이트 22.3.1
